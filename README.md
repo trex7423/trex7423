@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi a student here , eager to learn and contribute to whatever i can really.
 
 <!--
 **trex7423/trex7423** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
